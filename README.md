@@ -1,6 +1,7 @@
 # my dni's 
 # dni if:
- your over 20 or under 12 
+ your over 20 or under 12.
+ 
  if you ship characters that hate each other or aroace
  or characters that are already married / dating a dif character.
  
@@ -13,3 +14,5 @@
  
 if you support problematic people 
 or if you are problematic.
+
+if you find attraction to minors.
