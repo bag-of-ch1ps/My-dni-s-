@@ -16,3 +16,7 @@ if you support problematic people
 or if you are problematic.
 
 if you find attraction to minors.
+
+if you often mention things like pregnancy or freaky stuff
+
+if yoh ignore dni's and disconforts and follow me when i move away
