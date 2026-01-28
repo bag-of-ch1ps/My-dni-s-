@@ -6,7 +6,6 @@
  or characters that are already married / dating a dif character.
  
  if your a proshipper/darkshipper, 
- if you like ships like crim x cop etc
  
  if your homophobic.
  
@@ -19,4 +18,4 @@ if you find attraction to minors.
 
 if you often mention things like pregnancy or freaky stuff
 
-if yoh ignore dni's and disconforts and follow me when i move away
+if yoh ignore dni's and discomforts and follow me when i move away
